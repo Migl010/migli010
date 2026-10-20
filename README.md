@@ -16,6 +16,12 @@ Mis aficiones favoritas son:
 
 -🏅Hacer deporte
 
+
+
+
+
+-🌐Conocer el mundo
+
 Mis títulos son:
 
 
