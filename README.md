@@ -23,3 +23,10 @@ Mis títulos son:
 
 
 -🎓ESO
+
+Después de SMR,quiero hacer ASIR (Administración de Sistemas Informáticos en Red)
+
+
+
+
+Mi sueño después de hacer el grado superior es irme a vivir al exterior 🗺
