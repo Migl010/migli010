@@ -3,7 +3,17 @@ Hola 👋🏼,soy Juan Martín Miglionico,o conocido como Migli. Soy estudiante 
 Mis aficiones favoritas son:
 
 -🎮Jugar videojuegos de PC
+
+
+
+
 -👨🏻‍💻Estudiar cosas de informática
+
+
+
+
+
+
 -🏅Hacer deporte
 
 Mis títulos son:
